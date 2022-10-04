@@ -6,5 +6,5 @@
 <!-- - 🤔 I’m looking for help with  -->
 - 💬 Ask me about MagicWeb, Chemyst, or Geomytry
 - 📫 How to reach me: imky171@gmail.com
-- 😄 Pronouns: she/her they/them
+- 😄 Pronouns: they/them
 - ⚡ Fun fact: I love learning languages. (Spoken and programming)
